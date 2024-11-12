@@ -1,5 +1,5 @@
 <a href="https://supplier.mercedes-benz.com/external-link.jspa?url=https://masulil.com">i</a>
-<a href="https://socpedagog13.edurm.ru/redirect?url=https://masulil.com
+<a href="https://socpedagog13.edurm.ru/redirect?url=https://masulil.com">i</a>
 <a href="http://print-ing.ru/bitrix/redirect.php?event1=&event2=&event3=&goto=https://masulil.com">i</a>
 <a href="http://www.sargsplitter.de/?URL=https://masulil.com">i</a>
 <a href="http://www.66la.cn/export.php?url=https://masulil.com">i</a>
