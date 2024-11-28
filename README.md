@@ -692,3 +692,5 @@
 <a href="https://clients1.google.com.pk/url?q=https://masulil.com">i</a>
 <a href="https://clients1.google.com.ec/url?q=https://masulil.com">i</a>
 <a href="https://clients1.google.com.do/url?sa=t&url=https://masulil.com">i</a>
+
+https://gooretro.mystrikingly.com/blog/harga-jam-digital-masjid-di-purwokerto
